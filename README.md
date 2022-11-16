@@ -1,3 +1,3 @@
-Uh... hi? im @Fugimii
+Uh... hi? im Fugimii
 
 not sure what to put here...
